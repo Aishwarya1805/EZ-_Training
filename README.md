@@ -1,1 +1,1 @@
-# EZ-_Training
+# EZ Training
